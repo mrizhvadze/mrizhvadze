@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on education policy initiatives, open-source inclusion projects, and community-driven programs.
 
-😄 Pronouns: She/Her 
+
 
 <!---
 mrizhvadze/mrizhvadze is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
